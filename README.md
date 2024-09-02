@@ -65,8 +65,8 @@ Banyuwangi, Jawa Timur, Indonesia
 Jika Anda tertarik untuk berbicara lebih lanjut atau bekerja sama, silakan hubungi saya melalui salah satu cara berikut:
 
 - **Email:** [syaifudin2302@gmail.com](mailto:syaifudin2302@gmail.com)
-- **Website:** [bigkreatif.com](https://bigkreatif.com)
+- **Website:** [www.bigkreatif.com](https://bigkreatif.com)
 - **LinkedIn:** [LinkedIn Profile](https://www.linkedin.com/in/nur-moh-syaifudin-73bbb0216)
-- **INSTAGRAM:** [instagram.com/sfdn22_](https://instagram.com/sfdn22_)
+- **INSTAGRAM:** [Instagram Profil](https://instagram.com/sfdn22_)
 
 Terima kasih!
